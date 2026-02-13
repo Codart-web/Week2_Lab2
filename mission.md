@@ -1,1 +1,2 @@
-Team Lead: Taurai Chiponde
+
+Team Lead: Taurai Chiponde and Beauty
