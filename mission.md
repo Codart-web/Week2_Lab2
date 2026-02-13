@@ -1,1 +1,2 @@
-Team Lead: Your name
+Team Lead: Beauty
+
